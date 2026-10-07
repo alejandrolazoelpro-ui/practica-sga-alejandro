@@ -1,1 +1,0 @@
-# practica-sga-alejandro
